@@ -17,6 +17,6 @@ I'm a Ruby on Rails Developer, with large experience in workflow automation, dat
 ## Contact info
 [LinkedIn](https://www.linkedin.com/in/gustavo-henrique-albuquerque/ "LinkedIn")
 
-[WhatsApp](http://wa.me/5511978349876 "WhatsApp")
+[WhatsApp](http://wa.me/5511988320747 "WhatsApp")
 
 [Schedule a Meeting](https://gustavohrqalb.youcanbookme.com/ "Schedule a Meeting")
